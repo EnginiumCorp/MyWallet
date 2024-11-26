@@ -7,4 +7,4 @@ To help me reach the next step you can contact me on enginiumcorp@gmail.com wher
 
 
 Here the link to access the App Alpha:  https://play.google.com/store/apps/details?id=com.enginiumcorp.mywallet
-PS be sure the mail you give me is the same of your play store
+- PS be sure the mail you give me is the same of your play store
